@@ -1,6 +1,7 @@
-缪语博的 $Github$ 
+amlhdsan 的 Github
 
-铜陵市第一中学菜鸡一枚 \
+高二菜鸡一枚
+
 欢迎在各站关注我哦
 
 ### [My website](https://amlhdsan.github.io/) 
